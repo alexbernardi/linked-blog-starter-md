@@ -6,7 +6,9 @@ upon the eye of gods
 
 they slumber for too long
 
-but 
+content with a single song
+
+in their vice lies destruction
 
 
 

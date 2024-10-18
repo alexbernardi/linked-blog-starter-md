@@ -17,7 +17,7 @@ excerpt:
 
 [[revived]]
 
-come alive
+[[come alive]]
 
 
 
