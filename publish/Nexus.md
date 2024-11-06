@@ -3,22 +3,23 @@ title: Chain of Causation
 excerpt:
 ---
 
-[[here on the edge ]]
+[[here on the edge ]] (edge of our perception of reality)
 
-[[lies the center]]
+[[lies the center]] (the center of all edges of perceptions of reality)
 
-[[where all stories fold]]
+[[where all stories fold]] (the "folding" of the stories born from the perceptions)
 
-[[grown old]]
+[[grown old]] (repetition of stories drives decline, stagnation, senesce)
 
-[[faded]]
+[[faded]] (dissociation)
 
-[[cold]] 
+[[cold]] (the calm entropic state)
 
-[[revived]]
+[[revived]] (a ripple)
 
-[[come alive]]
+[[come alive]] (a tidal wave)
 
+[[drive ahead to the outer edge]] (Explore a new path)
 
 
 

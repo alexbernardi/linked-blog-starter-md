@@ -1,4 +1,4 @@
-our heroes
+[[our heroes]]
 
 shivering, lonely
 

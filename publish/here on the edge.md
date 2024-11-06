@@ -14,4 +14,4 @@ a splash!
 
 the feeling of being here at last
 
-Al-Marakaz, the center
+welcome to...Al-Marakaz, the center
