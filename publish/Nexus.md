@@ -19,7 +19,7 @@ excerpt:
 
 [[come alive]] (a tidal wave)
 
-[[drive ahead to the outer edge]] (Explore a new path)
+[[drive ahead to the outer edge]] (Exploration and renewal)
 
 
 
